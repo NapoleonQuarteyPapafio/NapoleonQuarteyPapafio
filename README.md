@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data Analytics at Blossom Academy, 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me: Phone/WhatsApp: 0245613277   LinkedIn: www.linkedin.com/in/napoleonquarteypapafio
-- 😄 Pronouns: He
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Love songs but hate singing.
 
 <!---
